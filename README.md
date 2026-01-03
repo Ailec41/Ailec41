@@ -24,7 +24,7 @@ I am a loyal **Chelsea FC** fan and often follow football matches in my spare ti
 
 ## 📬 Contact
 
-- 🌐 My Blog: lunatide.tech
+- 🌐 My Blog: [lunatide.tech](https://lunatide.tech)
 
 ---
 
