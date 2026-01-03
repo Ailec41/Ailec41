@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ailec (love1rEJL)
+# 👋 Hi, I'm LunaTide
 
 🎓 second-year CS / AI Student  
 🤖 Interested in Artificial Intelligence, Machine Learning and XCPC  
